@@ -2,7 +2,7 @@
 
 **Last Updated:** January 10, 2026
 
-Mikhail Nikolayevich Yakovlev, Individual Entrepreneur (hereinafter — "Company", "we") respects the confidentiality of your data. This Privacy Policy explains what data we collect, how we use it, and what rights you have.
+Nickolay Pavlovich Yakovlev, Individual Entrepreneur (hereinafter — "Company", "we") respects the confidentiality of your data. This Privacy Policy explains what data we collect, how we use it, and what rights you have.
 
 ---
 
